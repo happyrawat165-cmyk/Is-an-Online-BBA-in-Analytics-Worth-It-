@@ -1,1 +1,6 @@
 # Is-an-Online-BBA-in-Analytics-Worth-It-
+Many students ask whether studying business analytics online is a good idea. For most learners, the answer is yes, as long as the program is recognised and the syllabus is practical.
+What You Gain
+A good [online BBA analytics](https://learnurture.com/blogs/online-bba-in-business-analytics/)teaches you management basics along with data skills. A typical [online BBA business analytics course](https://learnurture.com/blogs/online-bba-in-business-analytics/)  includes Excel, statistics, and visualisation tools, so you can work with real business data. You also save time and travel costs because everything is online.
+What to Check Before Joining
+Cost matters, so compare the online BBA business analytics fees of different universities, including exam and material charges. Also check for UGC recognition, project work, and career support. If these boxes are ticked, an online BBA in analytics can be a smart start to a data-driven career.
